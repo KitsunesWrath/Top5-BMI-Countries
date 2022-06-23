@@ -1,0 +1,1 @@
+# Top 5 krajów z najwyższym indeksem Big Mac
